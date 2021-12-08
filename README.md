@@ -1,4 +1,4 @@
-https://www.linkedin.com/in/diegowalhernandes/
+https://www.linkedin.com/in/diegowalhernandes/<br>
 https://diegohernandes.com/
  
 <div align="center">
